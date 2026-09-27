@@ -35,4 +35,4 @@ The field was compressing accurate models onto cheap hardware. I asked the inver
 
 ## Get in touch
 
-[LinkedIn](https://linkedin.com/in/riri0411) · riyawaghmare0411@gmail.com · Southampton, UK — open to London and relocation
+[LinkedIn](https://linkedin.com/in/riri0411) · riyawaghmare0411@gmail.com 
